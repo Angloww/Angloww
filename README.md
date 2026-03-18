@@ -3,8 +3,7 @@
 
 
 
-
-Hey I've lowk been more stressed out lately and its kind of causing my personality to shift a bit recently so uh... Sorry to some of my friends or something
+#1/2 dimofyy fan i think
 
 ------
 

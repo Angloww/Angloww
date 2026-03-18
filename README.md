@@ -4,10 +4,9 @@
 
 
 
+Hey I've lowk been more stressed out lately and its kind of causing my personality to shift a bit recently so uh... Sorry to some of my friends or something
 
-
-
-<img width="1831" height="1497" alt="generated-image-1" src="https://github.com/user-attachments/assets/46e70320-5f44-418b-b825-6b976b1f2231" />
+------
 
 IIdk what to put here hey Ig
 

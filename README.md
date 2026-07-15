@@ -7,4 +7,3 @@
 <p align="center">
 "don't forget everything that i did for you."
 </p>
-$/color{#575f5c}{/textsf{I}}$

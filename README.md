@@ -5,6 +5,6 @@
 </p>
 
 <p align="center">
-<img width="56" height="56" alt="2026_07_15_0ro_Kleki (1)" src="https://github.com/user-attachments/assets/c5f5d075-25fc-4e57-bda1-dc42f0b8c014" /> "don't forget everything that i did for you."<img width="56" height="56" alt="2026_07_15_0sa_Kleki (1)" src="https://github.com/user-attachments/assets/95ed6f79-6907-46c0-afcb-d5f75e58c2ae" />
+<img width="56" height="56" alt="2026_07_15_0sg_Kleki (2)" src="https://github.com/user-attachments/assets/d830a05d-7d6f-49ca-95e8-ba2a18c89748" />"don't forget everything that i did for you."<img width="56" height="56" alt="2026_07_15_0sg_Kleki (1) (2)" src="https://github.com/user-attachments/assets/328aae62-42e6-480f-862e-280086ac0638" />
 
 </p>

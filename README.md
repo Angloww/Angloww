@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">
-hi so you know it takes me a while to warm up/ get comfortable with people (^^)
+usually ontab unless busy status on pt (^^l
 </p>

@@ -1,3 +1,20 @@
+<img width="460" height="50" alt="2026_07_31_03t_Kleki (1)" src="https://github.com/user-attachments/assets/4a1bfca3-5860-4fe0-9661-bbe94eabbeab" />
+
+</p>
+  <table>
+    <tr>
+      <td>
+     $${\color{#959483}\space angloww \space / \space kelly}$$ 
+   $${\color{#878f8b}\space × \space she/}$$
+        $${\color{#5b8071}they \space pronouns}$$ 
+        $${\color{#476561}> \space asocial}$$
+        $${\color{#405667}\space ,}$$
+        <br> $${\color{#959483} (ᵕ—ᴗ—) \space PLEASE}$$ $${\color{#878f8b} BMF!}$$ $${\color{#5b8071} !! \space //}$$ $${\color{#476561}hihihi \space friends \space / \space oomfs}$$
+        <br> $${\color{#5b8071} wth \space do \space i \space put \space here}$$
+      </td>
+    </tr>
+  </table>
+
 <img width="340" align="left" alt="2026_07_31_03s_Kleki (1)" src="https://github.com/user-attachments/assets/88f009b9-f955-4e71-b85e-43f54a3bde5c" />
 
 ㅤㅤㅤㅤㅤㅤ<img width="450" height="50" alt="2026_07_31_03t_Kleki (1)" src="https://github.com/user-attachments/assets/049dc103-eeaf-447d-a221-bb5829a99f80" />

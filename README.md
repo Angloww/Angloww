@@ -1,4 +1,6 @@
 <img width="460" height="50" alt="2026_07_31_03t_Kleki (1)" src="https://github.com/user-attachments/assets/4a1bfca3-5860-4fe0-9661-bbe94eabbeab" />
+<img width="340" align="right" alt="2026_07_31_0bb_Kleki (1)" src="https://github.com/user-attachments/assets/61f8d06b-9838-42e5-8b9f-e7045ee942b8" />
+
 
 </p>
   <table>

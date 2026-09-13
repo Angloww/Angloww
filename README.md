@@ -1,5 +1,4 @@
 <img width="900" height="82" alt="2026_09_12_11k_Kleki (1) (1)" src="https://github.com/user-attachments/assets/6befd2c3-ff77-4709-9402-43db2e138780" />
-<img width="1" height="50" alt="2026_07_27_02i_Kleki (1) (1)" src="https://github.com/user-attachments/assets/9fa1fcc0-e1d5-429b-b618-81710c1f9c22" />
 
 <img width="300" align="left" alt="2026_09_12_11h_Kleki (1)" src="https://github.com/user-attachments/assets/f3451f7d-29f0-444e-8fea-1f2dcb2da6c1" />
 

@@ -1,4 +1,4 @@
-<img width="900" height="82" alt="2026_09_12_11k_Kleki (1) (1)" src="https://github.com/user-attachments/assets/6befd2c3-ff77-4709-9402-43db2e138780" />
+<img width="750" height="82" alt="2026_09_12_11k_Kleki (1) (1)" src="https://github.com/user-attachments/assets/6befd2c3-ff77-4709-9402-43db2e138780" />
 
 <img width="300" align="left" alt="2026_09_12_11h_Kleki (1)" src="https://github.com/user-attachments/assets/f3451f7d-29f0-444e-8fea-1f2dcb2da6c1" />
 
@@ -65,4 +65,4 @@
 
 
 
-<img width="900" height="82" alt="2026_09_12_11l_Kleki (1)" src="https://github.com/user-attachments/assets/1bb73b24-2394-4178-82c9-8898931aa5bb" />
+<img width="750" height="82" alt="2026_09_12_11l_Kleki (1)" src="https://github.com/user-attachments/assets/1bb73b24-2394-4178-82c9-8898931aa5bb" />

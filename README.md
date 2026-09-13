@@ -49,6 +49,10 @@
  <a href="https://rottenfromthestart.straw.page/">
    straw2
  </a>
+,   //
+<a href="https://x.com/leuz3r">
+  art creds
+</a>
 </details>
 
  　　⸝⸝ 　　 $${\color{#959483}why \space do, \space I \space care. ˶ᵔ ᵕ ᵔ˶}$$   ⸝⸝   

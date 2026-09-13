@@ -55,7 +55,6 @@
 
 
 
-<img width="1" height="50" alt="2026_07_27_02i_Kleki (1) (1)" src="https://github.com/user-attachments/assets/3d364606-c497-4889-99de-6a939e138eac" />
 
 
 <img width="900" height="82" alt="2026_09_12_11l_Kleki (1)" src="https://github.com/user-attachments/assets/1bb73b24-2394-4178-82c9-8898931aa5bb" />

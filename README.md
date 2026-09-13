@@ -50,6 +50,7 @@
 
  　　⸝⸝ 　　 $${\color{#959483}why \space do, \space I \space care. ˶ᵔ ᵕ ᵔ˶}$$   ⸝⸝   
 
+<img width="1" height="20" alt="2026_07_27_02i_Kleki (1) (1)" src="https://github.com/user-attachments/assets/4e8fde5a-bb8f-40b1-af11-414d5012a2b8" />
 
 
 

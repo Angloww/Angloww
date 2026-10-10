@@ -1,3 +1,8 @@
-don't friend me if your under 16 ^^
-<img width="854" height="456" alt="OIP (2)" src="https://github.com/user-attachments/assets/c3684cf7-eddb-4ac8-8fc6-8094a2e7cc3a" />
+imgriend me if your under 16 ^^
+
+
+I really like Blueleaf and Dimofyy
+
+
+<img width="474" height="266" alt="OIP (3)" src="https://github.com/user-attachments/assets/701eb0c9-2be4-4c31-9ec3-51f40c064600" />
 

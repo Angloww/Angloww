@@ -1,4 +1,4 @@
-DONT friend me if your under 16 ^^ (sorry this glitched oh my god)
+DONT friend me if your under 16 ^^
 
 
 I really like Blueleaf and Dimofyy
